@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @naufalfzml
 - 👀 I’m interested in coding 
-- 🌱 I’m currently learning everything that I want
+- 🌱 I’m currently learning everything I want
 - 📫 find me on instagram.com/naufalfzml
 
 <!---
